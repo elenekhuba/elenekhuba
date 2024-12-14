@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @elenekhuba
-- 👀 I’m interested in not sports
-- 🌱 I’m currently learning spanish
-- 💞️ I’m looking to collaborate on idk 
+- 👀 I’m interested in reading and biology
+- 🌱 I’m currently learning french ( still learning spanish)
+- 💞️ I’m looking to collaborate on jidk
 - 📫 How to reach me: call me 
 
 <!---
